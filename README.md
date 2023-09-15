@@ -1,3 +1,3 @@
 6team project
 
-서인
+서인이
