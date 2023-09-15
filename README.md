@@ -1,5 +1,3 @@
 6team project
 
-1234455
-
-new
+서인
